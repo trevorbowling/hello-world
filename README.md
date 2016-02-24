@@ -7,12 +7,8 @@ And now a litlle bit about myself, mostly in non-sequiturs:
 - Live in the Old Louisville area, between Churchill Downs and University of Louisville
 - Currently attending Murray State University, for my Bachelors' in Business - CIS
 - Planning on either attending law school, specializing in IT Law, or acquiring my Master's in Information Sciences
-- Sports I'm still active in: boxing, cycling, and tennis, weather permitting
+- Active in boxing, cycling and, weather permitting, tennis
 - Avid reader, former librarian of 10 years
-- Favorite Books: The Loser, Confederacy of Dunces, Godel Escher & Bach, The Master Switch, The Naked & The Dead, Fear and Loathing Campaign Trail '72
-- Favorite Musicians: Van Morrison, Prince, David Bowie, Outkast, CCR, Kanye West, Future, My Morning Jacket, Cam'Ron, The Cars
-- Favorite Movies: Butch Cassidy & The Sundance Kid, The Artist, Warriors, The Pianist, Training Day, Talladega Nights, Pi
-- Favorite Television: Cheers, The Wire, Twin Peaks, The West Wing, Halt & Catch Fire, M*A*S*H*
 - NBA fan, Knicks, unfortunately
 - Currently in weight loss: Started at 230, now at 220, gunning for 188. May write program to show progress
 - Current goal of reading 53 books in 2016. May write program to show progress
